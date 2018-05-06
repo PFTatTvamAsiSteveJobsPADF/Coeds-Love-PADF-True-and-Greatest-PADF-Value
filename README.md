@@ -15,7 +15,7 @@ when said opportunities arise. In this way, the best sorts of parents, coaches, 
 early adulthood as is the case of recruits in the military, it might be able to produce highly effective (leaders andor at least highly disciplined and 
 competent followers with decent jobs, ie beter than me as of writing May? 6, 2018?)} you out whenever necessary to ameliorate your behaviour/ performance
 and ideally to help you to exceed your previous limitations physically and mentally], Warren Buffett [extolling the need for 
-good analysis, patience, and opportunistic economies of scales type of investing!! [yes everything when purchased should be viewed ideally as potential andor 
+good analysis, patience, and opportunistic economies of scales type of investing!!] [yes everything when purchased should be viewed ideally as potential andor 
 actual / literal investment monetarily andor health wise for one's future improvement(s) as much as possible], and [this one could get me in trouble] a 
 heterosexual fairly mainstream porn director [who wants you to have the most pleasurable and aesthetically pleasing sex and show it off, well at least say 
 via legal PDA public displays of affection, publicly with the best looking partner(s) that you can hope to have].    
